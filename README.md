@@ -2,3 +2,5 @@
 <p align="center"> 𓂅⠀⠀⠀<b>kellen</b>⠀or⠀lewis⠀✦⠀<b>strictly</b>⠀it⠀/⠀circus⠀⠀◞ </p>
 <p align="center">⠀⠀ ︵︵⠀⠀⠀i⠀♥♥⠀<b>gideon⠀graves</b>⠀&⠀<b>jason⠀schwartzman</b>⠀⠀(っ˘з(˘⌣˘ ) ♡ </p>
 <p align="center">⠀╮⠀⠀i'm⠀mostly⠀<b>semi-verbal</b>⠀ingame⠀,⠀c+h⠀encouraged⠀!⠀⠀𓂂
+
+<p align="center"> <a href="https://tamanotchi.world/27630c">tamanotchi</a>⠀✦⠀<a href="https://hellofascination.atabook.org">atabook</a>⠀✦⠀<a href="https://fluffle.cc/patelgraves">fluffle</a> </p>
